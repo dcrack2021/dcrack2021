@@ -14,6 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-DevOps Engineer
-
 Connect Me On Instagram : ❤codecbyte  
